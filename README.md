@@ -1,1 +1,1 @@
-# Educa-o-Financeira
+# Educacao-Financeira
